@@ -129,7 +129,7 @@
 
 * [**_Arabic-English Dictionary of Quranic Usage_**](https://brill.com/display/title/12492)  
 
-* [**_A History of Persian Literature_**](https://cfis.columbia.edu/research-projects/history-persian-literature)  
+* [**_A History of Persian Literature_**](https://www.bloomsbury.com/uk/series/history-of-persian-literature/)  
 [_Volume 01: General Introduction to Persian Literature_](https://www.bloomsbury.com/us/general-introduction-to-persian-literature-9781845118860/)  
 [_Volume 02: Persian Lyric Poetry in the Classical Era, 800-1500_](https://www.bloomsbury.com/uk/persian-lyric-poetry-in-the-classical-era-8001500-ghazals-panegyrics-and-quatrains-9781788318242/)  
 [_Volume 03: Persian Narrative Poetry in the Classical Era, 800-1500_](https://www.bloomsbury.com/us/persian-narrative-poetry-in-the-classical-era-8001500-romantic-and-didactic-genres-9781845119041/)  
