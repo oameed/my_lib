@@ -285,6 +285,7 @@
     [view] 1991. Mallory. _In Search of the Indo Europeans_  
   
   * _The Israelites/Jews_<br/><br/>
+  [The Model of Jerusalem in the Second Temple Period](https://www.imj.org.il/en/wings/shrine-book/model-jerusalem-second-temple-period)<br/><br/>
   [[view]](https://global.oup.com/academic/product/the-jewish-study-bible-9780199978465?cc=us&lang=en&) _The Jewish Study Bible_ [[sefaria.org]](https://www.sefaria.org/texts/Tanakh) [[Torah's Sources]](https://en.wikiversity.org/wiki/Bible/King_James/Documentary_Hypothesis)<br/><br/>
   [[view]](https://www.harpercollins.com/products/the-exodus-richard-elliott-friedman?variant=32117516140578) 2017. Friedman. _The Exodus_  
   [[view]](https://global.oup.com/academic/product/jews-and-samaritans-9780190068790?cc=us&lang=en&) 2013. Knoppers. _Jews and Samaritans The Origins and History of Their Early Relations_  
