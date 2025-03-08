@@ -139,6 +139,7 @@
 * [**_Encyclopaedia of the Quran_**  ](https://brill.com/display/serial/ENQU)  
 
 * [**_Achemenet_**](http://www.achemenet.com/en/)  
+  [**_The Oriental Institute Achemenet Project_**](https://isac.uchicago.edu/research/projects/oriental-institute-achemenet-project)  
 
 * [**_Encyclopaedia Iranica_**](https://www.iranicaonline.org/)  
 
